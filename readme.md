@@ -1,1 +1,1 @@
-Danışman değişikliği nedeniyle iptal edilen tez çalışmamın kodlama ve deney aşamalarını birlikte tamamlamış olmamıza rağmen, eski danışmanım bu çalışmayı başka birine verip buradan yayın çıkarabileceğini söyledi. Bu yüzden burada paylaşıyorum.
+Danışman değişikliği nedeniyle iptal edilen tez çalışmamın kodlama ve deney aşamalarını tamamlamış olmamıza rağmen, eski danışmanım bu çalışmayı başka birine verip buradan yayın çıkarabileceğini söyledi. Bu yüzden burada paylaşıyorum.
