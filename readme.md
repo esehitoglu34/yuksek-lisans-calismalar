@@ -1,1 +1,1 @@
-DANIŞMAN DEĞİŞİKLİĞİ SONUCU İPTAL OLAN TEZ ÇALIŞMAM, ESKİ DANIŞMANIMIN KODLARI VE DENEYLERİ BİTMİŞ BU ÇALIŞMAYI, "BAŞKASINA VERİP BURDAN YAYIN ÇIKARABİLİRİM" DEDİĞİ ÇALIŞMA.
+Danışman değişikliği nedeniyle iptal edilen tez çalışmamın kodlama ve deney aşamalarını tamamlamış olmamıza rağmen, eski danışmanım bu çalışma hakkında 'başkasına verip buradan yayın çıkarabilirim' demiştir.
