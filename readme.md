@@ -1,4 +1,4 @@
-Danışman değişikliği nedeniyle iptal edilen tez çalışmamın kodlama ve deney aşamalarını tamamlamış olmamıza rağmen, eski danışmanım bu çalışmayı başka birine verip buradan yayın çıkarabileceğini söyledi. Bu yüzden burada paylaşıyorum.
+Danışman değişikliği nedeniyle, kimse kabul etmediği için etik olmaz diye iptal olan tez çalışmamın kodlama ve deney aşamalarını tamamlamış olmamıza rağmen, eski danışmanım bu çalışmayı başka birine verip buradan yayın çıkarabileceğini söyledi. Bu yüzden burada paylaşıyorum.
 
 Hem mobbing ve baskı yoluyla yüksek lisansı bırakmaya yada danışman değiştirmeye zorluyor, danışmanlığı bırakıp git hocalarla görüş diyip beni 1-2 ay süründürüyor kendisi yapaması gereken şeyide bana yaptırıyor emir vererek git hocalarla görüş vs hocalar danışman bulduğumda sistemde yeni danışman onaylandığı gün mesaj atıyorum obs den görüşmemiz lazım gel diye sonra "nerelerdesin kendini özlettin" diye dalga geçiyor alay ediyor, diyor senle yaptığımız bildiriyi yayınlayalım, diğer yayın çıkma aşamasına gelmiş makale çıkma aşamasına gelmiş çalışma içinde bunu başkasına verip yayın çıkartabilirim diyor.
 
