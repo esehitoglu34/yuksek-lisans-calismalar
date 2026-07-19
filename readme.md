@@ -1,1 +1,1 @@
-orço önder
+eski danışmanım önder çobanın bana uyguladığı mobbing arkamdan ettiği küfürler danışmanlığı bırakıp beni mağdur etmesi ve yayınlanmış 1 bildiri ve burdaki çalışmalardan bir tane daha bildiri var onu yayınlayalım diğer çalışmayı da başkasına verir yayın yaparım demesi üzerine buraya attım emeğim başkalarına peşkeş çekilmesin diye..
